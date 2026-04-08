@@ -1,1 +1,0 @@
-# -Samaja-Saving-Farooqiya
